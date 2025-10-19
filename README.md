@@ -1,4 +1,4 @@
-## Hi, I'm Bowen Slingluff 
+## Hi, I'm Bowen 
 
 ### Check out my stuff, https://bowenslingluff.github.io/
 
